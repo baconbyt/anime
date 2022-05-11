@@ -2,7 +2,7 @@
 
 #### Sunday
 
-+ Trapped in a Dating Sim: The World of Otome Games is Tough for Mobs
++ [Trapped in a Dating Sim: The World of Otome Games is Tough for Mobs](https://beta.crunchyroll.com/series/G0XHWM0D3/trapped-in-a-dating-sim-the-world-of-otome-games-is-tough-for-mobs)
 
 #### Tuesday
 
