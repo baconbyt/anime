@@ -1,4 +1,4 @@
-# Seasonal Anime List
+# Seasonal Anime List - Spring 2022
 
 #### Sunday
 
